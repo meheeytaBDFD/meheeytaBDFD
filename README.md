@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @meheeytaBDFD
+- 👀 I’m interested in pawn scripting.
+- 🌱 I’m currently learning more pawn scripting.
+- 📫 How to reach me(discord): meheeytaBDFD#6018
